@@ -1,1 +1,1 @@
-<center><a href="url">link text</a></center>
+<button onclick="document.location='default.asp'">HTML Tutorial</button>
