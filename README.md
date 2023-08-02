@@ -1,1 +1,1 @@
-<a href="url">link text</a>
+<center><a href="url">link text</a></center>
